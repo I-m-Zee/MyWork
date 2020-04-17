@@ -1,2 +1,0 @@
-# MyWork
-Home Assignments
